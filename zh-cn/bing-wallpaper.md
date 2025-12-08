@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-08 | [多马索���建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-08 | [多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-07 | [雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
