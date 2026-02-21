@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-02)
-![](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&w=1000)Today: [一只红狐狸站在雪地里，大提顿国家公园，怀俄明��，美国 (© Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&w=1000)Today: [一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-21 [download 4k](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-21 [download 4k](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-02-20 [download 4k](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
